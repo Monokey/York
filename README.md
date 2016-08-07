@@ -1,6 +1,6 @@
 # York
 The track was recorded after several hours of session 
-jamming with guitars and pianos. The results were disppointing. 
+jamming with guitars and pianos. The results were disappointing. 
 Texture and substance was missing from the final track. 
 To compensate for this, and to end the evening on a more positive
 note, the next 15 minutes was spent with a notebook and synth, 
